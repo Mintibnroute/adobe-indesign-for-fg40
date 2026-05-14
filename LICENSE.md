@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe InDesign for macOS with Adobe InDesign for macOS rare Extension - shortcut customization and layer styles, the #1 extension. Includes shortcut customization and
 
 
 
